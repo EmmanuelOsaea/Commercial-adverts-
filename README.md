@@ -1,9 +1,6 @@
 # Commercial-adverts-
 
-Here are three examples of gig-winning commercial scripts tailored to different tones and purposes:
 
-
----
 
 **1. Product Promotion – Humorous Tone**
 
